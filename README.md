@@ -167,7 +167,7 @@ width="45" height="45" alt="SQL Server">
 
 **Lady Aura 💫**
 
-<i>In My Opinion👉Keep Learning • Keep Creating • Keep Growing</i>
+<i>In My Opinion👉Keep Learning • Keep Creating • Keep Growing • Take A Rest😵‍💫</i>
 
 🦋 ✨ 🦋
 
